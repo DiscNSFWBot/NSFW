@@ -1,2 +1,3 @@
 # NSFW
 -ass
+-ass
